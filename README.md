@@ -15,4 +15,3 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-My Linkedin --> https://www.linkedin.com/in/vibhin-vv-996471155/
